@@ -7,8 +7,6 @@ https://forums.ppsspp.org/showthread.php?tid=25095
 
 Sceenshots.
 
-<a href="https://ibb.co/hBJnmBq"><img src="https://i.ibb.co/0CRWGCw/NPJH50832-00000.jpg" alt="NPJH50832-00001" border="0"></a>
-
 <a href="https://ibb.co/yqqv1zZ"><img src="https://i.ibb.co/FzzZMQy/NPJH50832-00002.jpg" alt="NPJH50832-00001" border="0"></a>
 
 <a href="https://ibb.co/wzDVDkg"><img src="https://i.ibb.co/DR3h3JW/NPJH50832-00003.jpg" alt="NPJH50832-00001" border="0"></a>
